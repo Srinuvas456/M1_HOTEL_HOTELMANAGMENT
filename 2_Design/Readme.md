@@ -8,3 +8,50 @@
 
 
 ![4 drawio](https://user-images.githubusercontent.com/49784193/142860355-f1d744ef-68ee-4937-96ab-f31cd581152e.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![5 drawio (1)](https://user-images.githubusercontent.com/49784193/142860897-a10a84b7-2975-49bc-9312-7608429bf865.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+![6 drawio](https://user-images.githubusercontent.com/49784193/142861269-fcb42786-1186-4841-ac80-88a107dce427.png)
+
